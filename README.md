@@ -3,3 +3,5 @@ Merhaba Robloxu Bırakma Amacım Nedir Sebep Robloxun Bana Biraz Garip Gelmesi V
 
    Bu Resime Bakarsanız Anlarsınız. = 
 https://media.discordapp.net/attachments/890929550668742666/924788242933510184/unknown.png
+
+❤️Meryem Ve Şahin Diyer Arklarım Sizi Unutmıcam❤️
